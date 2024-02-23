@@ -1,1 +1,1 @@
-![]([https://cdn.midjourney.com/3cdaad37-c28c-44ab-8dc8-230963415ec0/0_0.webp](https://raw.githubusercontent.com/michaelyimhoff/michaelyimhoff/main/decayed_Edo_period_of_Japan_in_the_dark_with_fog.png)https://raw.githubusercontent.com/michaelyimhoff/michaelyimhoff/main/decayed_Edo_period_of_Japan_in_the_dark_with_fog.png)
+![](https://raw.githubusercontent.com/michaelyimhoff/michaelyimhoff/main/decayed_Edo_period_of_Japan_in_the_dark_with_fog.png)
